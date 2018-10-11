@@ -1,1 +1,1 @@
-
+As we discussed a bit in class, I plan to create a blog to work with my family's hiking and outdoor store and website. The intended audience are the "typical" customer we might see; those interested in spending time in and/or protecting and preserving the outdoors. 
