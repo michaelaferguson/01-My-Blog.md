@@ -1,6 +1,6 @@
 # How We Got Here 
 
-Before Hyk was Hyk, a long journey of transformation awaited the original shop space that it now occupies. For many years, 149 E. Elkhorn held a T-shirt shop called Main Street Ts. 
+Before Hyk was what it is today, a long journey of transformation awaited the original shop space that Hyk now occupies. For many years, 149 E. Elkhorn held a T-shirt shop called Main Street Ts. 
 ## October 2017
 The shop was closed, gutted, and a four month long renovation began. 
 We hit the drawing boards, in hopes of bringing a visual space that was utterly new and fresh to Estes Park. Everything had to go in order to achieve our vision. Here's how the shop looked when the years and years of built up merchandise was taken out from Main Street Ts:
