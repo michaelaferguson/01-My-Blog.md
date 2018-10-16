@@ -24,8 +24,10 @@ We were thrilled with our wood and metal sign to hang over our front door. Peopl
 
 ## February 2018
 We worked on finishing the final touches of the interior, added final signage inside, and begin stocking the store with outdoor gear from brands new to Estes Park.
+
 -picture 
 Annabelle, our fearless shop dog, was of consistent help and oversaw the production of things. 
+
 -pictures
 
 ## March 2018
