@@ -11,13 +11,16 @@ The walls and floors were a high priority to transforming the space. Along with 
 -pictures
 
 Next up was new clothing fixtures and lighting. Watching the shop come together made the cold and dark winter days worth it. We made our own warmth and light - and had fun while doing it!
+
 -pictures
 
 ## January 2018
 When the weather warmed up just a bit, we got started on the exterior renovations. We removed the orange awning and terracotta tiles on the roof to start fresh.
 
 -picture of drawing board
+
 A wooden beam entry was added, and ledge stone veneers replaced the previous tan and green stones. 
+
 -picture 
 
 We were thrilled with our wood and metal sign to hang over our front door. People walking by were quite curious, and many locals said they enjoyed seeing the transformation unfold from their daily walks with their dogs or to work. 
@@ -26,9 +29,10 @@ We were thrilled with our wood and metal sign to hang over our front door. Peopl
 We worked on finishing the final touches of the interior, added final signage inside, and begin stocking the store with outdoor gear from brands new to Estes Park.
 
 -picture 
+
 Annabelle, our fearless shop dog, was of consistent help and oversaw the production of things. 
 
 -pictures
 
 ## March 2018
-On March 8th, we opened our doors as Hyk for the first time. We hosted an open house and ribbon cutting with our friend and Mayor, Todd Jirsa. 
+On March 8th, we opened our doors as Hyk for the first time. We hosted an open house and ribbon cutting with our friend and Mayor, Todd Jirsa. The evening was joyous and successful and started our first season off strong.  
