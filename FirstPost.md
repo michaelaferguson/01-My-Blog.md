@@ -13,7 +13,7 @@ Next up was new clothing fixtures and lighting. Watching the shop come together 
 
 ## January 2018
 When the weather warmed up just a bit, we got started on the exterior renovations. We removed the orange awning and terracotta tiles on the roof to start fresh.
-- picture of drawing board
+-picture of drawing board
 A wooden beam entry was added, and ledge stone veneers replaced the previous tan and green stones. 
 -picture 
 We were thrilled with our wood and metal sign to hang over our front door. People walking by were quite curious, and many locals said they enjoyed seeing the transformation unfold from their daily walks with their dogs or to work. 
