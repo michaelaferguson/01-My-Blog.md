@@ -1,1 +1,2 @@
-
+## How to Enjoy Winter in Northern Colorado
+As winter approaches, it may seem like the outdoor activities in Estes Park and the surrounding areas are limited, but that is a myth we are here to debunk. The obvious and most popular approach to winter fun is hitting the slopes outside of Denver, but we'd like to suggest some activities and places to go to kick the woes of winter in the face and enjoy Colorado all year long!
