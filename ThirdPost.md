@@ -10,3 +10,8 @@ I set up camp on one of the many dispersed camping spots available on National F
 
 # Where to Eat
 Given the town is only 1.55 sq. miles, the options for food aren't super plentiful, yet somehow they have managed to have at least one of any type of food you'd want. 
+
+# What to Do
+The hiking trails are plentiful around Nederland as it borders Indian Peaks Wilderness and Rocky Mountain National Park. The Fourth of July Trailhead is an excellent spot to start and explore. Parking is extremely limited and everyone and their dog (literally) will be there too - take advantage of the free shuttles that run regularly from town.
+We were a little overwhelmed by the miles of connecting trails and opted for the one-mile trek to Lost Lake for sunrise. It wouldn't be a proper morning without some camp coffee - you can pick up your own Jetboil, Yeti and GSI coffee maker from Hyk!
+Here's a friendly reminder to practice Leave No Trace responsibilities and be bear (and other animal) aware! We knew bears frequent the area we camped in, so we took precautions to keep ourselves and ultimately, the bears safe. Respect the wildlife and they'll respect you! We were fortunate enough to have a graceful encounter with a mother and baby moose on the trail: 
